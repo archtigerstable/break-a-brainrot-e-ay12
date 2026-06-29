@@ -1,4 +1,4 @@
-
+break a brainrot egg advanced Script offers the most advanced break a brainrot egg Script, with anti-ban and infinite resources. Perfect for
 
 
 
